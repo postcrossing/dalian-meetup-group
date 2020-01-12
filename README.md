@@ -24,4 +24,4 @@ Here you can find out the other side of your character.
 Here you can meet strangers around the world enjoy a quite time with friends.   
 Here is Dalian Postcrossing meet-up Group.   
 
-We are always right here waiting for you.
+We are always right here waiting for you. <span class="crossing"><a target="_blank" href="https://weibo.com/PostcrossingDalian">more</a></span>
